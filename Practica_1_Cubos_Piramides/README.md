@@ -1,1 +1,0 @@
-# Simulacion_por_computadora_Ramiro_Tabares
